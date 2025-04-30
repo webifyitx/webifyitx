@@ -54,7 +54,7 @@ Let your audience choose what works best for them — we make it frictionless.
 ## 🔗 Connect With Us
 
 📩 **Email**:     webifyit.in@gmail.com  
-🌐 **Website**:   [https://webifyit.in](https://webifyit.com)  
+🌐 **Website**:   [https://webifyit.in](https://webifyit.in)  
 📱 **Instagram**: [@webifyit](https://instagram.com/webify__it)  
 🔗 **LinkedIn**:  [WebifyIt](https://linkedin.com/company/webifyit)  
 
